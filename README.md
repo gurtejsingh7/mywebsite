@@ -1,2 +1,2 @@
-# Personal website @ www.gurtejsingh7.com
+# Personal Website @ www.gurtejsingh7.com
 # Coming Soon!
